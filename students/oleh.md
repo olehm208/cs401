@@ -1,2 +1,2 @@
-Oleh Mystyk
+Oleh Mytsyk
 17y.o., Lviv Oblast
